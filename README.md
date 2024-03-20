@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PowerBra
 - 👀 I’m interested in Warcraft
-- 🌱 I’m currently learning Pathon
+- 🌱 I’m currently learning wth
 - 💞️ I’m looking to collaborate on sth
 - 📫 huangjunpara@sina.com
 - 😄 Pronouns: ...
